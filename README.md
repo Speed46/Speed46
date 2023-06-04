@@ -14,11 +14,11 @@
 
 🤔 I’m looking for help with Competitive Programming
 
-💬 Ask me about anything, Except Maths 😅
+💬 Ask me about anything, Except Anime 😅
 
 👨‍💻 Life Hack: Learn new tech 🔥 and share what you have learned 🎉
 
-💥 Fun Fact: I'm a dynamic individual who loves the thrill of 🥊 boxing, 🏊‍♂️ swimming, 🏏 cricket, and conquering new heights through hiking. I'm always up for exciting culinary adventures, heart-pumping 🎢 rides, and getting lost in captivating 📚 fiction. Life's an adventure, and I'm here for it! 🌟
+💥 Fun Fact: I'm a dynamic individual who loves the thrill of 🥊 boxing, 🏊‍♂️ swimming, 🏏 cricket, and conquering new heights through hiking ⛰️ . I'm always up for exciting culinary adventures 🍴 , heart-pumping 🎢 rides, and getting lost in captivating 📚 fiction. Life's an adventure, and I'm here for it! 🌟
 
 
 
